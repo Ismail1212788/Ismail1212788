@@ -1,5 +1,4 @@
 ### Hi there 👋
-Absolutely, let's give your profile a stylish touch with emojis:
 
 ---
 
